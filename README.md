@@ -1,9 +1,8 @@
-Hi,I am @memisbah- 👋 Hi, I’m @memisbah
-I am interested in technology- 👀 I’m interested in ...
-I am Currently Learning Languages like Typescript,Javascript and so on... 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+Hi,I am @memisbah- 👋 
+I am interested in technology- 👀 
+I am Currently Learning Languages like Typescript,Javascript and so on... 🌱 
 you can reach me through  linkedin or gmail(fatimafamilyfamily@gmail.com)
 - 😄 Pronouns: she
-- ⚡ Fun fact: Strubborn
-passionated about learning new skills and about craeer
+- ⚡ Fun fact: Strubborn,
+passionated about learning new skills and about craeer.
 
